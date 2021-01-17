@@ -1,2 +1,2 @@
-# empowered_consumerism
+# Empowered_Consumerism
 Online Marketing
